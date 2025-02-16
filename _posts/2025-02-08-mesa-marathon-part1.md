@@ -10,8 +10,6 @@
 
 ![mesa marathon](/img/2025-02-08-mesa-marathon/IMG_0089.jpg)
 
-![mesa marathon](/img/2025-02-08-mesa-marathon/IMG_0068.jpg)
-
 Mesa Marathon是一个点到点马拉松，比赛是早上6:30起跑，起点在Mesa的郊外，终点在Mesa市内的一个叫Solan Park的地方。早上全马参赛者4~5点在起点附近集合坐Shuttle Bus被送到终点，场面还比较开眼（因为自己没有参加过大型比赛），一字长龙的米国特色黄色校巴车延续排满整个一条街。
 
 ![mesa marathon](/img/2025-02-08-mesa-marathon/IMG_0094.jpg)
