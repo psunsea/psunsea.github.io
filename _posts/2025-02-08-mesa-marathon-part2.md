@@ -31,7 +31,7 @@
 
 最后还差一百米一个拐弯就看见旗门了，所有的人被加油声包围，开冲吧，刚一迈开步子右小腿又开始抽了，这时候也不管了，一颠一颠的继续向前，冲到一半就听见广播里在喊自己的名字，虽然是绝大多数比赛的常规，但是这次感觉喊得格外响亮😁
 
-![mesa marathon](/img/2025-02-08-mesa-marathon/image_32.jpg)
+![mesa marathon](/img/2025-02-08-mesa-marathon/image_34.jpg)
 
 ![mesa marathon](/img/2025-02-08-mesa-marathon/image_16.jpg)
 
