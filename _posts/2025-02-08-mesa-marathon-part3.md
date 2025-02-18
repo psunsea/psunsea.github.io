@@ -1,6 +1,12 @@
 
 [drafting]
 
+
+髋外旋
+位置 18~19英里处, E Brown Rd & N Harris Dr 
+
+![mesa marathon](/img/2025-02-08-mesa-marathon/image_19.jpg)
+
 总结自己整个比赛
 - 吃胶计划贯彻到了17英里，而17英里后只喝了几口水
 - 全程没有出现腿抽筋抽到跑不了要停下来，小抽自然是
