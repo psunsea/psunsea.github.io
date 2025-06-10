@@ -8,3 +8,9 @@
 2. 控制 LR 的强度，谨慎参加跟跑比赛的 LR！跟跑比赛是感觉跑得很 high，但实际自己的潜能和比赛对自己的兴奋刺激度在这样的活动中被消耗了。
 
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/Tunnel_Marathon_2025_Finish_0205.jpg)
+
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0036.jpg)
+
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0037.jpg)
+
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/WechatIMG2092.jpg)
