@@ -10,4 +10,4 @@
 1. 接受自己这把年纪+并不好的恢复能力（肝脾巨弱），不要跟风什么精英的赛前计划，赛前一周应该在坚持日常的基础上做小幅的变动
 2. 控制LR 的强度，并且要谨慎参加跟跑比赛的 LR，自己感觉跑得很 high，但实际自己的潜能和比赛对自己的兴奋刺激度在这样的活动中被消耗了
 
-![tunnel marathon](img/2025-06-08-tunnel-marathon/Tunnel_Marathon_2025_Finish_0205.jpg)
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/Tunnel_Marathon_2025_Finish_0205.jpg)
