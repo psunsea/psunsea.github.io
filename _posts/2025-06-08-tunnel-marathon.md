@@ -4,7 +4,7 @@
 
 ## What went well
 - 去年 9 月比赛被血泡整怕了，这次为避免脚打泡，袜子选择了 Swiftwick ASPIRE FOUR Trail Running & Cycling Socks，并在里面加了 2Toms BlisterShield （像滑石粉，防磨起泡），效果不错，脚底没有起泡。
-- 关于比赛鞋，两次 preview 分别试了 Ascis Magic Speed 3 和 Nike Vapor Fly 3，对比 Garmin 数据 VF3 作为更激进的碳板并没有给我的步频步幅带来改进（反而要比 MS3 小），加上 VF3 的鞋面网眼较大，如果穿就必须额外穿 gaitor 防止进沙石，所以就果断选择了比赛用 MS3，MS3 对于我来说是不错的选择，没有引起脚踝的不适（我猜测是鞋底的硬度和碳板的刚性比较适合我的脚的力量，利于落地的足底的滚动）。
+- 关于比赛鞋，两次 preview 分别试了 Ascis Magic Speed 3 和 Nike Vapor Fly 3，对比 Garmin 数据 VF3 作为更激进的碳板并没有给我的步频步幅带来改进（反而要比 MS3 小），加上 VF3 的鞋面网眼较大，如果穿就必须额外穿 gaitor 防止进沙石，所以就果断选择了比赛用 MS3，MS3 对于我来说是不错的选择，没有引起脚踝的不适（我猜测是鞋底的硬度和碳板的刚性比较适合我的脚的力量，利于落地的足底的滚动）,而且这双 MS3 是我花 40 元买的二手😄。
 - 
 
 ## 总结
