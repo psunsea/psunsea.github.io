@@ -13,7 +13,10 @@
 
 当天气预报图开始在画一座山，我并不以为意，因为经历了去年九月那次山火中隧道马，和今年 2 月 8 日 80 多度的沙漠地带毫无树荫的 Mesa Marathon，我相信自己找到了真谛，不惧高温，
 
-我执行了周2️⃣至周5️⃣下午戒碳水，周5️⃣晚饭到周六全部米面为主，并且按 Deepseek 的周五周六
+我执行了周2️⃣至周5️⃣下午戒碳水，周5️⃣晚饭到周六全部米面为主，并且按 Deepseek 的指示，为防止抽经，赛前三天特殊补盐，
+
+我赛前一天把所有注意事项都写在了小白板上，
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0036.jpg)
 
 我在 6 月 8 日 4:15 起床，按计划在手腕上用 Mark 笔写上自认为非常保守的主要里程点的目标时间，
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0037.jpg)
@@ -44,7 +47,6 @@
 
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/Tunnel_Marathon_2025_Finish_0205.jpg)
 
-![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0036.jpg)
 
 
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/WechatIMG2092.jpg)
