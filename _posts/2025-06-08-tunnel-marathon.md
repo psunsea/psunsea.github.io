@@ -2,6 +2,7 @@
 当我经过半年重视核心、摆臂、正向提膝练习，相信自己的跑步经济性有了很大的提升，
 
 当我经过 Capitol Marathon 爬升一千多英尺的检验，相信自己已经战胜了 22 英里抽筋的魔咒，
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/Capital_City_2025_Course-Capitol_1353.jpg)
 
 当我根据两次 preview 的数据，决定比赛弃用相对激进的 Nike Vapor Fly 3，选择穿 Ascis Magic Speed 3 参加比赛，MS3 鞋底的硬度和碳板的刚性比较适合我的脚的力量，利于落地的足底的滚动（因为它柔😄）,并且鞋面不是大网眼，不需要额外带gaitor，
 
