@@ -2,13 +2,16 @@
 
 当我经过 Capitol Marathon 爬升一千多英尺的检验，相信自己已经战胜了 22 英里抽筋的魔咒，
 
-当我根据两次 preview 的数据，决定比赛弃用相对激进的 Nike Vapor Fly 3，选择穿 Ascis Magic Speed 3 参加比赛时，
+当我根据两次 preview 的数据，决定比赛弃用相对激进的 Nike Vapor Fly 3，选择穿 Ascis Magic Speed 3 参加比赛，
 
 当我根据前二次跑隧道马的经验，为防止脚底起泡，专门穿了 Swiftwick ASPIRE FOUR Trail Running & Cycling Socks，并且在袜子里面加了 2Toms BlisterShield （像滑石粉，防磨起泡）；
 
-当我通晓隧道马路线的一切奥秘，21 迈可以闭着眼睛也不会跑错路时，
+当我通晓隧道马路线的一切奥秘，21 迈可以闭着眼睛也不会跑错路，
 
-当天气预报图开始在画一座山，我并不以为意，因为经历了去年九月那次山火中隧道马，和今年 2 月 8 日 80 多度的 Mesa Marathon，我相信自己找到了真谛，不惧高温，
+当天气预报图开始在画一座山，我并不以为意，因为经历了去年九月那次山火中隧道马，和今年 2 月 8 日 80 多度的沙漠地带毫无树荫的 Mesa Marathon，我相信自己找到了真谛，不惧高温，
+
+我在 6 月 8 日 4:15 起床，按计划在手腕上用 Mark 笔写上主要节点的目标时间，
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0037.jpg)
 
 当我赛前早晨喝下一罐 kombacha，增加益生菌，帮助跑的过程中消化能量胶，
 
@@ -35,6 +38,5 @@
 
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0036.jpg)
 
-![tunnel marathon](/img/2025-06-08-tunnel-marathon/IMG_0037.jpg)
 
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/WechatIMG2092.jpg)
