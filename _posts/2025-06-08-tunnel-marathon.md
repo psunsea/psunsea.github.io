@@ -27,6 +27,9 @@
 
 ![tunnel marathon](/img/2025-06-08-tunnel-marathon/outoftunnel.png)
 
+当我举着自己的号码踉踉跄跄冲过终点🏁，我意识到 ———— 以上一切的一切，都不会被证明正确或错误，我除了证明了自己的存在，并且是一个虚弱的存在，什么也证明不了
+![tunnel marathon](/img/2025-06-08-tunnel-marathon/Tunnel_Marathon_2025_Finish_0205.jpg)
+
 
 
 ## 自己搞的乌龙
@@ -45,7 +48,6 @@
 - 接受自己这把年纪+并不好的恢复能力（肝脾巨弱），不要跟风什么精英的赛前计划，赛前一周应该在坚持日常的基础上做小幅的变动，保持一个相对稳定的饮食，避免睡眠受影响是最重要的！
 - 控制 LR 的强度，谨慎参加跟跑比赛的 LR！跟跑比赛是感觉跑得很 high，但实际自己的潜能和比赛对自己的兴奋刺激度在这样的活动中被消耗了。
 
-![tunnel marathon](/img/2025-06-08-tunnel-marathon/Tunnel_Marathon_2025_Finish_0205.jpg)
 
 
 
